@@ -7,7 +7,6 @@
 
 - 👯 I’m looking to collaborate with **other learners**
 
-- ⚡ I like to **play video games**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
